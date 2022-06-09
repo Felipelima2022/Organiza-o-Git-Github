@@ -1,1 +1,0 @@
-# Organizações GIT/GITHUB
